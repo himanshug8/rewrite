@@ -94,5 +94,28 @@ so they leave fenny in hope that he will catch up.
 18. rahul encounters a cheetah when he was asleep on duty, we don't know if it was a dream or reality. Any way next day fenny discovers a group of cheetahs. after a few days of struggle.
 19. they reaches an open cave which leads to a town far away, but gedun alerts them that it might be a miraj, but rahul who has eaten nothing fights him to leave but with a tinker of magic and the clasping of the hands make the town vanish before their eyes and rahul not believing what he saw, walks with gedun silently.
 
+<!-- NOte: tirki, tirhi spelling error. -->
+<!-- Note: ad the horse man.... he is the managar of the horses and their feeding. -->
 
-  
+<!-- 14th oct. -->
+<!-- page 23_incomplete v.o_ tibet ke log. -->
+<!-- page no.25 create a chant for gedun. -->
+
+<!-- Page no 32. first town. -->
+<!-- (Important thing to note.) -->
+<!-- Truth based on your life exeriences is not the total truth but a partial one. Universal truth is obsolute and can not change even if you differe with it. For example one might thing to solve a problem you need voilence, and for another non voilence is the vay to solve a problem.(like eye for an eye make the whole world blind) -->
+
+20. the dog is tired and is now easy to handel as rahul grabs him with his working arm for the journey.
+21. At night they setup a camp at the popular site of a land slide that happened a century ago, rahul cant sleep with a roaring stomach. gedun is on the watch taking his tea, and fenny dreams the death of the 7th dalai lama, and an absurd ritual attached to it. On inquiring about the dream, which felt really real, gedun told him what he saw was not a dream but a memory of a deceased person who died upon this land slide.
+22. Next day the dog is not able to walk or even breath properly, they all know that he is going to be dead. gedun and fenny leaves where rahul is sobbing and he uses his share of tent, tear it apart and use it to codver the dead body of the dog and place it underneath a sturdy rock formation. upon ascending the hill, he find them sipping tea. He joins them.
+<!-- (add a scene here, where a donkey caring the food for horses falls off the cliff and they left him alive their who is screaming in pain, that what they are going to do when the dog is not able body) -->
+23. heaving through the dry mountains, they finally encounter a troop carrying sacred buddhist documents, upon asking they get to know that the documents are off limits, but the magic of money can bypass any sacredness anywhere if you push enough. but nothing of use is found. so, initial disappointment, and loosing money.
+24. fenny by now is curious and we get to know that if rahul dies fenny is not been able to complete his work, where as gedun can but he doesn't want to, because he thinks that anything worth having will exist no matter the time. he gives an example that air is need to live, it can never run out, but a book is so fragile that it can burn or eaten by insects. 
+
+
+
+
+
+
+
+LINE NO> 1293....next work.
