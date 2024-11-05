@@ -41,8 +41,15 @@ He concludes that one should live the sensory life first.
 He is going to Tibet to meet his guru and to renounce his monk-hood for good.
 
 1. **Tiru and trike:** A nomadic couple who lives in a tent against the backdrop of picturesque landscape.  
-They represent the normal of the tibet culture where people can be selfish for their survival. 
+They represent the normal of the tibet culture where people can be selfish for their survival.
 
+ 2. **The wife and his 5 husbands** local tibet family.
+ 3. **old man on pilgrimage** who dies with a smile.
+ 4. **An old couple with their luggage laden goat**
+ 5. **A filtering voice, maybe a ghost**
+ 6. **Gyasto** A friend of rahul and a trader in tibet.
+ 7. **Nyima** A mauture unmarried women, who has to 
+ 
 
 
 
@@ -111,11 +118,25 @@ so they leave fenny in hope that he will catch up.
 <!-- (add a scene here, where a donkey caring the food for horses falls off the cliff and they left him alive their who is screaming in pain, that what they are going to do when the dog is not able body) -->
 23. heaving through the dry mountains, they finally encounter a troop carrying sacred buddhist documents, upon asking they get to know that the documents are off limits, but the magic of money can bypass any sacredness anywhere if you push enough. but nothing of use is found. so, initial disappointment, and loosing money.
 24. fenny by now is curious and we get to know that if rahul dies fenny is not been able to complete his work, where as gedun can but he doesn't want to, because he thinks that anything worth having will exist no matter the time. he gives an example that air is need to live, it can never run out, but a book is so fragile that it can burn or eaten by insects. 
+25. They reach their first town, where a beast of a local dog chased them, when they plunge in someone's house for safety. After initial tit-bit, they settle at the same place for the night. Rahul finally have his meal, and he eats like a beast.
+26. tomorrow afternoon the family and our men according to the ritual take bath together in the river,obviously naked and nothing weird about it. They get to know that they take bath only once  a year.
+<!-- from line 1280 awkward, the dialogue where fenny describes the beauty of the being -->
+<!-- line no, 1312 ------ copy from book, old man's death.
+ -->
+ 27. Finally they see people on the pilgrimage and while joining them, they find an old man lying dry underneath a rock formation, who asks for water and  gedun's blessing, and he does give watering his illusion when he dies with a smile.
+ 28. they walk and walk and walk,till night the set up a camp with raised tent finally and a comforting bonfire. when they encounter a spirit couple who wants to know them who they are, but we only hear their voice, fenny and rahul shitting their pants where gedun deals with them.
+ 29. understand the scene from the book. where gedun uses his woodo bullshit to manipulate them into taking care for the kid. (other wise, the pilgrimage is so sacred that they can left anyone behind as if one dies on the pilgrimage, it considered that the person goes to heaven)
+ 30. they met with an old couple who ladens their luggage on a frail goat, which escapes when our men greeted them and asked them to go easy on the goat. but it takes off, fenny follows it to catch it, but rolls down the rocky hill and his back smashes on a pointy rock. something breaks down and he cries in pain. 
+ 31. gedun after manipulating the old couple into believing that that goat is his father born again as it. so that they will take care for it till lahsa.
+ 32. rahul and gedun attend fenny, who surely has broken something, they laden him on his horse back. where fenny screams in pain.
+ 33. they slit through dry chilly lands, fenny is visibly in pain.
+ 34. when, finally they get to see the top part of the POTLA PALACE.
+ 35. they are at the entrance, where the tibet officials catches a german man pretending to be a bagger, they throw him out. but because gedun is with them, the have a save passage.
+ 36. after having diner and sleeping next day, a healing lama and his assistant perform a ritual and apply some herbal medicine on to his back and ties him tight to adjust his spine. finally rahul gets the permission form the dalai lama to explorer tibet and do as he pleases.(he gets the permission because dalai lama loves india and because their god comes from that place)
+ 37. When rahul give the healing lama their payment he gets to know that fenny is not going to live, they have give gyasto a herbal tea which will help with the pain.
 
 
 
 
 
 
-
-LINE NO> 1293....next work.
