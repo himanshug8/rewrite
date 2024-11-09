@@ -133,7 +133,16 @@ so they leave fenny in hope that he will catch up.
  34. when, finally they get to see the top part of the POTLA PALACE.
  35. they are at the entrance, where the tibet officials catches a german man pretending to be a bagger, they throw him out. but because gedun is with them, the have a save passage.
  36. after having diner and sleeping next day, a healing lama and his assistant perform a ritual and apply some herbal medicine on to his back and ties him tight to adjust his spine. finally rahul gets the permission form the dalai lama to explorer tibet and do as he pleases.(he gets the permission because dalai lama loves india and because their god comes from that place)
- 37. When rahul give the healing lama their payment he gets to know that fenny is not going to live, they have give gyasto a herbal tea which will help with the pain.
+ 37. When rahul give the healing lama their payment he gets to know that fenny is not going to live long, they have given gyasto a herbal tea which will help with the pain.
+
+38. ***Montage***:-  
+    * Gyasto leads him to a temple with a golden buddha statue, rahul manically searches for his documents where gyasto sips tea with the appointed llama in the temple.
+    * Another temple where the wall looking heap of books, mingled with mud and a living place of maggots triggers rahul and he scolds the working lama. But finds that the lama thinks that the books are buddha itself so they pray to them. which makes rahul really angry.   
+    * gedun scene: A shiny, spiritual, red room with equally shiny floor, gedun talks with his master. Who has no problem him quitting the monkhood, but he asks him to wait till his friend(fenny) gets better, and he asks him to bring him back here, then he can quit his monkhood.
+    * on the third temple rahul meets a drunk lama, who sits and drinks all day to mimic calmness. but here he find some documents but not the one he is looking for. they slept their for the night, in the morning they pay for the documents and leave. 
+    * Dharamveer temple: he cries because this is the guy who promoted buddhism to tibet.
+
+
 
 
 
