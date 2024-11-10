@@ -49,6 +49,8 @@ They represent the normal of the tibet culture where people can be selfish for t
  5. **A filtering voice, maybe a ghost**
  6. **Gyasto** A friend of rahul and a trader in tibet.
  7. **Nyima** A mauture unmarried women, who has to 
+ 8. **A drunk lama.** He drinks all day to mimic calm, and sits all day wit a smile on his face and is a authority figure in a temple.
+9. **gyando:**  is a normal humor filled llama who lives a fairly simple life serving a llama who is meditating for 15 years and doesn't eat food, and talks through psychic powers.
  
 
 
@@ -140,7 +142,17 @@ so they leave fenny in hope that he will catch up.
     * Another temple where the wall looking heap of books, mingled with mud and a living place of maggots triggers rahul and he scolds the working lama. But finds that the lama thinks that the books are buddha itself so they pray to them. which makes rahul really angry.   
     * gedun scene: A shiny, spiritual, red room with equally shiny floor, gedun talks with his master. Who has no problem him quitting the monkhood, but he asks him to wait till his friend(fenny) gets better, and he asks him to bring him back here, then he can quit his monkhood.
     * on the third temple rahul meets a drunk lama, who sits and drinks all day to mimic calmness. but here he find some documents but not the one he is looking for. they slept their for the night, in the morning they pay for the documents and leave. 
-    * Dharamveer temple: he cries because this is the guy who promoted buddhism to tibet.
+    * Dharamveer temple: he cries because this is the guy who promoted buddhism to tibet.(complete it its not in the screenplay)
+
+39. Nimya aids fenny, feeds him, talks to him, and thet talk about marriage and with a irony joke fenny promises nimya the when he will be cured , he will marry nimya. the problem is she considers it and blushes. on leaving the room, she told fenny about a lamma who used to roam the streets doing magic and healing and is sitting in meditation for the past 15 years.
+40. feny reads recently written pages of rahul, when gendun visits him. and knowing that fenny is going to die, he feels weird because of his master wish to bring fenny. when fenny asks gedun about the magical lama. gendun remembers it and finds that he has some contacts there and he will check, by evening.
+41. int he evening rahul comes wit a lot of documents, he has not the one he was looking for and they are tired, when he get toi know that fenny was reading his pages they fight and rahul asks him to not touch his documents.
+42. at the market gedyn buys a whiskey glass, when gyando taps his shoulder, gyando told him that meditating lama tolh him that fenny can only live by tomorrow evening, and they need to donate 150 silver coins as he needs to eat food and funds are low in the temple.
+43. gedun takes gyando to fenny and they all confronted rahul because he has the money, where rahul tell them that he has woork to do, even he has the permission of the dalai lama he has to pay money to people to take all what he need and that tibet people are corrupt. whereas fenny asks him to take all his money and possesion in india, on to which rahul goes silent.
+44. next morning, they prepare fenny to be able to carry him on a stretcher, gyasto prepares the horses and gedun asks rahul if he is prepared to go, and he is till he doesn't has to pay.
+45. they cross dry land, in the sun, where fenny is scared and frail,and the vultures are hovering and circling about their head. when rahuls asks where did gedun arranged the money for fenny.
+46. the reach the town, where people consider gedun as a magical lama who helped ebvery one in the way, and he solves another person problem to find his cow. gyand eaves them to prepare and asks them to wait till evening to come to the temple wirth feny.
+47. 2318
 
 
 
