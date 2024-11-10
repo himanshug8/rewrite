@@ -160,8 +160,19 @@ so they leave fenny in hope that he will catch up.
 2569----awkward scene.....
 
 51. gyando, throws fit fenny out, he is magical cure, fenny fights rahul because he left him to die by not giving money. themn rahul fight gedun because he stole his money to give it to gyando. three of the fight on the ground, and they leave saperate ways. gedun and fenny goes to the master of gedun. where rahul goes to the town, where they earlier reside.
-2872---
+52. he sleeps at the cow shed of the person who was looking for his cow and he wanted to give respect to gedun but manages with rahul's presence. He thinks about gedun, how he is magically solving every ones problems. he sure has some divinity.
+53. gedun finally reaches his master to present the fenny infront of him, where the master asks gedun to surrender the monk cloths, and he reverts the seed of divinity , but broke it in the middle, and thinks and asks him, if he could wait for a while, but gedun couldn't. the master accepts fenny as his disciple.
 
+54. rahul tries one more time to collect document, in the way he saw a secluded bone house, but he ignores it. Another montage. he stoles an important document related to the the book he is looking for.
+55. Finally gedun in the cloths of a scholar drinks his whiskey na dhe is tipsy and happy, and finally home, and where as, fenny who has begun writing his own pages. in the same town where rahul is panicking and heaving around, he saw gedun and falls on his feet, pleading to him to tell him where can he find the book he is looking for. rahul tell him that he was stupid and couldnt see the divination he was with, this whole time, he pleads and pleads and after seeing rahul and telling him that all he did was guess work. thats it. so he asks rahul to see the bone house , because every one is scared of it, and it had been this way from centuries.
+56. Whole town comes to see the bone house, they stand in a protection spell, where rahul searches for the document himself, he fins it and hides it in this pocket, and pretends to take another notebook, which llama satches and asks for the mony. but he gave away the bokk, because the real one is hidden in hia pocket.
+57. at night seeing that every prediction of gedun comes true, he himself considers if he had the divination power. he cant sleep. but any way he moves out alone with a horse, taking whiskey and dissorving into a distance after saying his good bye.
+58. After few days of collecting his findings and getting his money from his friend in india, the takes the leave and go away with two horses full of documents. where fenny chooses  to stay and asks rahul to give this letter to his wife. he is born again and no old relationship matter.
+59. they hug and take leave, rahul finally gets to fire his gun, as some goons attack on him and the horse man. he one last time looks for the little grave of the dog. and upon reaching indian border, flashing cameras and reporters were waiting for him, he checks for his important book.
+60. fenny home, rahul gives the letter to his wife, who is young and beautiful, seeing her cry he cries with her.
+61. rahul passes the book to the archeologist, and the arc. put a lot of money infront of him but he rejects. it.
+62. .................
+63. delete the school part....and do something slow, do something contemplating.
 
 
 
