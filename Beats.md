@@ -151,11 +151,16 @@ so they leave fenny in hope that he will catch up.
 43. gedun takes gyando to fenny and they all confronted rahul because he has the money, where rahul tell them that he has woork to do, even he has the permission of the dalai lama he has to pay money to people to take all what he need and that tibet people are corrupt. whereas fenny asks him to take all his money and possesion in india, on to which rahul goes silent.
 44. next morning, they prepare fenny to be able to carry him on a stretcher, gyasto prepares the horses and gedun asks rahul if he is prepared to go, and he is till he doesn't has to pay.
 45. they cross dry land, in the sun, where fenny is scared and frail,and the vultures are hovering and circling about their head. when rahuls asks where did gedun arranged the money for fenny.
-46. the reach the town, where people consider gedun as a magical lama who helped ebvery one in the way, and he solves another person problem to find his cow. gyand eaves them to prepare and asks them to wait till evening to come to the temple wirth feny.
-47. 2318
+46. the reach the town, where people consider gedun as a magical lama who helped ebvery one in the way, and he solves another person problem to find his cow. gyand0 leaves them to prepare and asks them to wait till evening to come to the temple with feny.
+47. they take shelter at on eof the follower of gedun, where gedun performs death ritual. Where an old man was waiting for an llama to chant something to hom so that he can die peaceful. a peace of chants which make sure that the person who listens to get haven for sure. and the old man dies peacefully after hearing those chant from gedun.
+48. gyando looks over his shoulder from a mountain to to see our man looks like dot at the far away distance.
+49. rahul, gedun, and fenny on stretcher, begin to climb the stares, but rahul is dead tired because the gravity take a toll on his body and gedun is used to this, he is also tired but not like rahul, who wants to be dead. they finally reaches the top, where rahul falls down like a grunting pig, gyando ask tm to way, where rahul tries to peek inside while inflating and deflating and lost in breath work, gyand and his assistant carry fenny in to the temple. and gyand shuts the large gates down..
+50. Fenny lfinds an old llama levitating as he is meditation. Fenny is cured by this floating llama, who uses energy work and yogic powers to heal fenny, and seeing all the subtle dimensions fenny is stunned. something changes in him. 
 
+2569----awkward scene.....
 
-
+51. gyando, throws fit fenny out, he is magical cure, fenny fights rahul because he left him to die by not giving money. themn rahul fight gedun because he stole his money to give it to gyando. three of the fight on the ground, and they leave saperate ways. gedun and fenny goes to the master of gedun. where rahul goes to the town, where they earlier reside.
+2872---
 
 
 
